@@ -1,4 +1,4 @@
-if any errors occur means contact to this mail id : vishwarajaofficial@gmail.com
+if any errors occur means contact to this mail id : pruthvisbreddy@gmail.com
 
 Packages:
 
